@@ -1,0 +1,2 @@
+# Khojaly
+Xocalı faciəsi
